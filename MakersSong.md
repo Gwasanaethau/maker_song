@@ -8,3 +8,5 @@ How to be twice as smart,
 the bonus speeder-uppper
 we don't to part
 'cause we gotta eat supper.
+
+We don't know what we're doing
